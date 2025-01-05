@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @saranyareddy221
 - 👀 I’m interested in learning new things
-- 🌱 I’m currently learning b-tech 2 year
+- 🌱 I’m currently learning b-tech 3 year
 - 💞️ I’m looking to collaborate on cyber security
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
